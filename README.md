@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python.
 - 💞️ I’m looking to collaborate on Any Small Project.
 - 📫 How to reach me :@aryanchy449 on Telegram.
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: 
 
 <!---
